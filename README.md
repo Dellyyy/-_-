@@ -7,4 +7,4 @@
 | Здесь могла бы быть ваша реклама | Здесь могла бы быть ваша реклама | Здесь могла бы быть ваша реклама |
 | :heart: | :heart: | :heart: |
 
-![ы]([https://ir.ozone.ru/s3/multimedia-l/c1000/6686776389.jpg])
+![ы](https://sun9-19.userapi.com/s/v1/ig2/jlmMafsdD8AU0zwssyolHtD_YUag68iLDLh1knzZmCnb_rypcQSkbkzs5KTUcfj3qEwDKU6zrrUd1E_K8tpy-G_k.jpg?quality=95&as=32x40,48x60,72x90,108x135,160x200,240x300,360x450,455x569&from=bu&u=4ntAgJwoB5ZnJmX-ODvCsnEgG4X_kIMBNAgCFndhMVA&cs=455x569)
