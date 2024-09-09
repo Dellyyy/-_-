@@ -14,4 +14,4 @@
 |-|:-:|-:|
 | 4 | 5 | 6 |
 
-[](https://yastatic.net/naydex/yandex-search/ro9aI4v50/87d05bd_8uQb/QCPcrJf965QCYQ-4GxXBr3UhT1aNaw-wVBDZTbG5wcwoV0WOWTc5ManHGTpuqauH33etUq40gcHksqWWnjd1TtQHGJimeK6wcwWLeGuFgFvE9c9S_K4vASWgnJkkOTGcGPTTSVsAKtN_YA5IqdgLolpS2ZMqENenI)
+[](https://yastatic.net/naydex/yandex-search/ro9aI9v54/87d05bd_8uQb/QCPcrJf965QCYQ-4GxXBr3UhT1aNaw-wVBXpXRTJ9Fx4slWOHEc5dPkCjF9ufN7y6jf9IrsUgVFUl6DmrlfALiRWiAimfQ6QdsRK_c4g9S6whc6Cre6PcSURzMlxWfV9bdfxvvn33DS_sW4oKRppQZiA-oUqoZS0kdMxQqpRBo)
