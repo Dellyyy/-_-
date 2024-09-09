@@ -15,3 +15,5 @@
 | 4 | 5 | 6 |
 
 [](https://yastatic.net/naydex/yandex-search/ro9aI9v54/87d05bd_8uQb/QCPcrJf965QCYQ-4GxXBr3UhT1aNaw-wVBXpXRTJ9Fx4slWOHEc5dPkCjF9ufN7y6jf9IrsUgVFUl6DmrlfALiRWiAimfQ6QdsRK_c4g9S6whc6Cre6PcSURzMlxWfV9bdfxvvn33DS_sW4oKRppQZiA-oUqoZS0kdMxQqpRBo)
+
+zalupa
