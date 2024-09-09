@@ -13,3 +13,5 @@
 | 1 | 2 | 3 |
 |-|:-:|-:|
 | 4 | 5 | 6 |
+
+[](https://yastatic.net/naydex/yandex-search/ro9aI4v50/87d05bd_8uQb/QCPcrJf965QCYQ-4GxXBr3UhT1aNaw-wVBDZTbG5wcwoV0WOWTc5ManHGTpuqauH33etUq40gcHksqWWnjd1TtQHGJimeK6wcwWLeGuFgFvE9c9S_K4vASWgnJkkOTGcGPTTSVsAKtN_YA5IqdgLolpS2ZMqENenI)
